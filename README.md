@@ -10,11 +10,20 @@ lorem ipsum
 ### Os integrantes
 
 Ana Beatriz
+
 Julia A.
+
 Julia M.
+
 Bianca 
+
 Julio
+
 Lucas
+
 Isabella
+
 Giovanni
+
 Victor
+
